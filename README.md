@@ -17,7 +17,7 @@ https://lk.million.money/a/406417/
 
 6. SMART CONTRACT WILL APPEAR
 
-7. CLICK Ru and select your language (English)
+7. CLICK Ru and select your language 
 
 8. Click on register
 
